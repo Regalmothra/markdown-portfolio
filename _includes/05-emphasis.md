@@ -1,1 +1,7 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I have *no sense of self worth,*
+and
+*people think I'm a **Bad Principle.** 🏫
+
+**Well.** 
+They aren't even *close* to prepared
+For **THIS** - my _**unforgettable**luncheon_ 🎉
